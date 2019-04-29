@@ -1,1 +1,1 @@
-# kristian9577.github.io/SoftUniBlog/
+# kristian9577.github.io/
